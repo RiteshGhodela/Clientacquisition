@@ -1,4 +1,4 @@
-# REVISED ACQUISITION STRATEGY 2026
+# ACQUISITION STRATEGY 2026
 ## Critical Audit & Complete Rebuild
 ### For a Beginner Freelance Web Designer Targeting International Clients
 
